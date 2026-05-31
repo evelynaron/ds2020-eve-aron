@@ -3,6 +3,6 @@ DS 2020 Summer 2026
 
 ode to an academic advisor
 
-worst thing since school started: Previously-flourishing houseplant died about two days after I got home, apparently from my sheer bad aura. Found snakes in our yard. 
+worst thing since school started: found snakes in our yard.
 
-best thing since school started: Bought a Kindle. Met some friends from high school. 
+best thing since school started: bought a kindle & met some old friends
